@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Rehan-Bin-Arshad
+- 👀 I’m interested in biotechnology, bioinformatics, and advancing research through innovative techniques.
+- 🌱 I’m currently learning advanced bioinformatics, recombinant biotechnology, and exploring new methodologies in drug discovery and nanoinformatics.
+- 💞️ I’m looking to collaborate on research projects, bioinformatics tool development, and community-oriented scientific initiatives.
+- 📫 How to reach me: rehann.arshad@gmail.com | s2018231006@post.umt.edu.pk
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: When I’m not in the lab, I’m probably volunteering in community projects or exploring new scientific literature!
