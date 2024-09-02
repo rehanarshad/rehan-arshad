@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Rehan-Bin-Arshad
+- 👋 Hi, I’m @rehan-arshad
 - 👀 I’m interested in biotechnology, bioinformatics, and advancing research through innovative techniques.
 - 🌱 I’m currently learning advanced bioinformatics, recombinant biotechnology, and exploring new methodologies in drug discovery and nanoinformatics.
 - 💞️ I’m looking to collaborate on research projects, bioinformatics tool development, and community-oriented scientific initiatives.
