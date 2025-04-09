@@ -8,7 +8,7 @@
 
 🤝 Open to collaborations in research, tool building & science outreach
 
-📫 Contact: rehann.arshad@gmail.com | s2018231006@post.umt.edu.pk
+📫 Contact: rehann.arshad@gmail.com | rehan.arshad@studenti.unimi.it
 
 😄 Pronouns: He/Him
 
